@@ -1,0 +1,1 @@
+# Modu-Stolika-Liniowego
